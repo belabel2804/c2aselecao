@@ -36,3 +36,5 @@ Somos uma empresa de pequeno que atua nos ramos de desenvolvimento, automação 
 
 ## Horário: 
     a combinar.
+#Enviar currículo para:
+    CaioArruda@gmail.com ou whatsapp: 85 996945708
