@@ -29,7 +29,7 @@ Somos uma empresa de pequeno que atua nos ramos de desenvolvimento, automação 
     part-time no escritório e part-time home-office
 
 ## Remuneração: 
-    R$ 2.500,00 à R$ 3.500,00 (A depender da disponibilidade);
+    R$ 1.500,00 à R$ 2.500,00 à combinar enviar pretensão salarial;
 
 ## Benefícios: 
     Transporte e Alimentação.
